@@ -1,1 +1,1 @@
-i havent uploaded my background photos and all but codes are there this was something i tried first time and yeah its decent but it doesnt have any animations and all. And i recently created a new little animated website and it looks really cool check it out
+i havent uploaded my background photos and all but codes are there this was something i tried first time and yeah its decent but it doesnt have much animations and all. 
